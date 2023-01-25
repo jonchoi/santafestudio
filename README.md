@@ -1,1 +1,1 @@
-# jonchoi.github.io-santafestudio
+# santa fe studio
